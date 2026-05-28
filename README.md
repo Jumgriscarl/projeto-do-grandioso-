@@ -1,2 +1,2 @@
-# projeto-do-grandioso-
+# projeto-do-computador
 sou grandiosa 
